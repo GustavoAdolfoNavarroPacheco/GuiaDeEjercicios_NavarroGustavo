@@ -41,3 +41,26 @@ El cardio, o ejercicio cardiovascular, engloba una variedad de actividades físi
  + Caminata lenta.
  + Estiramiento estático (piernas, espalda, brazos, cuello).
  + Respiraciones profundas para relajar el cuerpo.
+
+---
+
+## Consejos
+
+ + Usa ropa cómoda y transpirable.
+ + Hidrátate antes, durante y después del ejercicio.
+ + Aumenta la intensidad progresivamente.
+ + Mantén una buena postura.
+ + Escucha música para motivarte.
+
+---
+
+## Precauciones
+
+ + No te excedas al principio, comienza a tu ritmo.
+ + Evita superficies duras sin calzado adecuado.
+ + Consulta con un médico si tienes problemas cardíacos.
+ + Descansa si sientes mareo o dolor.
+ + Evita hacer cardio en ayunas si no estás acostumbrado.
+
+---
+
