@@ -43,3 +43,23 @@ El boxeo es un ejercicio físico muy completo que combina fuerza, resistencia, v
 ### Enfriamiento y estiramiento (5 min):
  + Respiración profunda.
  + Estiramiento estático de todo el cuerpo.
+
+---
+
+## Consejos
+
++ Aprende la técnica primero.
++ Usa vendas y guantes para protegerte.
++ Respira bien al golpear.
++ Entrena con disciplina y constancia.
++ Utiliza un espejo para mejorar tu forma.
+
+---
+
+## Precauciones
+
++ No golpees fuerte sin técnica.
++ Usa calzado adecuado.
++ Escucha tu cuerpo para evitar lesiones.
++ Protege tus articulaciones.
++ Si haces sparring, usa casco y protección.
