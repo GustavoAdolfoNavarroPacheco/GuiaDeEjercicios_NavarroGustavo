@@ -12,3 +12,32 @@ El ciclismo es un ejercicio cardiovascular muy completo que consiste en desplaza
  + Aumenta la resistencia: Mejora la capacidad de realizar esfuerzos prolongados.  
  + Reducción del estrés: Pedalear al aire libre mejora el ánimo y relaja la mente.  
  + Mejora el equilibrio: Desarrolla coordinación y control corporal.
+
+## Instrucciones
+
+ + Calentamiento general (5 min): pedaleo suave, movimientos articulares.  
+ + Estiramientos dinámicos (piernas, brazos, espalda).
+
+### Ejercicios principales (20-30 min)
+
++ Realiza 3-4 bloques de pedaleo continuo o por intervalos de 5-7 minutos con 1 min de descanso entre cada uno:
+
+  + Pedaleo constante a ritmo medio.  
+  + Intervalos de velocidad (30 seg rápido, 1 min lento).  
+  + Subidas o resistencia alta (en bicicleta estática o cuestas reales).  
+  + Sprint cortos para trabajar velocidad.  
+  + Pedaleo de pie para fortalecer más las piernas.  
+  + Uso de bicicleta estática con control de niveles.
+
+### Ejercicios complementarios (10-15 min)
+
+ + Planchas (3 series de 30 segundos).  
+ + Abdominales para fortalecer el core.  
+ + Estiramientos de piernas y espalda baja.
+
+### Enfriamiento y estiramiento (5 min)
+
+ + Pedaleo suave o caminata lenta.  
+ + Estiramiento estático (piernas, espalda, brazos, cuello).  
+ + Respiraciones profundas para relajar el cuerpo.
+
