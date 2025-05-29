@@ -41,3 +41,24 @@ El ciclismo es un ejercicio cardiovascular muy completo que consiste en desplaza
  + Estiramiento estático (piernas, espalda, brazos, cuello).  
  + Respiraciones profundas para relajar el cuerpo.
 
+---
+
+## Consejos
+
+ + Ajusta bien la bicicleta a tu altura y postura.  
+ + Usa casco y ropa adecuada si sales al exterior.  
+ + Hidrátate antes, durante y después del ejercicio.  
+ + Mantén una postura recta y relajada al pedalear.  
+ + Revisa tu bicicleta con regularidad si es al aire libre.
+
+---
+
+## Precauciones
+
+ + No pedalees a gran intensidad sin haber calentado.  
+ + Evita terrenos irregulares si eres principiante.  
+ + Protege tus rodillas y espalda manteniendo buena postura.  
+ + Descansa si sientes dolor o fatiga excesiva.  
+ + En exteriores, respeta las normas de tránsito.
+
+---
