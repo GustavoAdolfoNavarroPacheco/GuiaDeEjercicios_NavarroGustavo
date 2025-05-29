@@ -42,3 +42,25 @@ El yoga es una práctica física, mental y espiritual que combina posturas (asan
  + Savasana con respiración profunda y relajación consciente.  
  + Música suave o sonidos de la naturaleza (opcional).  
  + Visualización positiva o agradecimiento.
+
+---
+
+## Consejos
+
+ + Practica con ropa cómoda y en un lugar tranquilo.  
+ + Respeta tu ritmo y limita el esfuerzo para evitar lesiones.  
+ + Mantén una respiración profunda y constante.  
+ + Sé paciente, los beneficios se notan con la práctica constante.  
+ + Usa un mat o colchoneta antideslizante para mayor seguridad.
+
+---
+
+## Precauciones
+
+ + Evita posturas que causen dolor o incomodidad.  
+ + Consulta a un instructor si tienes lesiones o condiciones especiales.  
+ + No practiques inmediatamente después de comer.  
+ + Modifica posturas si tienes problemas de espalda, cuello o articulaciones.  
+ + Hidratate adecuadamente antes y después de la práctica.
+
+---
