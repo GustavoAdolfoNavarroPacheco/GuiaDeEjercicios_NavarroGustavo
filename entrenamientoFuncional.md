@@ -41,3 +41,25 @@ El entrenamiento funcional es una modalidad que busca mejorar el rendimiento fí
  + Caminata suave en el lugar.  
  + Estiramiento estático (isquiotibiales, cuádriceps, espalda, brazos).  
  + Respiraciones profundas para relajar el cuerpo.
+
+---
+
+## Consejos
+
+ + Asegúrate de hacer bien la técnica antes de aumentar la intensidad.  
+ + Escoge ejercicios adecuados a tu nivel.  
+ + Utiliza colchoneta o superficie antideslizante.  
+ + Mantén la espalda recta y el abdomen activado.  
+ + Sé constante para notar progresos.
+
+---
+
+## Precauciones
+
+ + Evita movimientos bruscos sin control.  
+ + Si tienes lesiones previas, consulta con un profesional.  
+ + No sobrecargues el cuerpo con demasiadas repeticiones.  
+ + Usa implementos seguros y en buen estado.  
+ + Hidrátate y escucha a tu cuerpo.
+
+---
