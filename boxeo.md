@@ -17,3 +17,29 @@ El boxeo es un ejercicio físico muy completo que combina fuerza, resistencia, v
  + Reducción del estrés: Golpear el saco es una gran forma de liberar tensiones.
 
  + Disciplina mental: Fortalece la concentración, la constancia y la confianza personal.
+
+## Intrucciones
+ + Trote suave en el lugar o cuerda (comba).
+ + Estiramientos dinámicos (brazos, cuello, piernas).
+ + Movimientos de sombra lentos para activar el cuerpo.
+
+### Técnica básica (5-10 min):
+#### Aprende y practica los golpes básicos:
+ + Jab (golpe recto con la mano delantera).
+ + Cross (golpe recto con la mano trasera).
+ + Hook (gancho lateral).
+ + Uppercut (gancho ascendente).
+ + Practica frente a un espejo (shadow boxing) para corregir postura y precisión.
+
+### Rutina principal (15-20 min):
+ + 3 a 5 rounds de 2-3 minutos cada uno (con 30 segundos de descanso):
+ + Golpes al saco de boxeo (si tienes).
+ + Shadow boxing con intensidad.
+ + Golpes al aire con pesas livianas (0.5-1 kg) para mayor esfuerzo.
+### Ejercicios complementarios (10-15 min):
+ + Abdominales (3 series de 20 repeticiones).
+ + Flexiones (3 series de 10-15 repeticiones).
+ + Sentadillas o saltos.
+### Enfriamiento y estiramiento (5 min):
+ + Respiración profunda.
+ + Estiramiento estático de todo el cuerpo.
