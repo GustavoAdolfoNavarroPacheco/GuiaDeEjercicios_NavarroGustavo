@@ -41,3 +41,25 @@ El entrenamiento de fuerza se enfoca en aumentar la capacidad del cuerpo para le
  + Caminata ligera.  
  + Estiramiento estático (cuádriceps, espalda, brazos).  
  + Respiraciones profundas para bajar la frecuencia cardíaca.
+
+---
+
+## Consejos
+
+ + Prioriza la técnica sobre el peso.  
+ + Aumenta el peso progresivamente.  
+ + Descansa entre series y después de los entrenamientos.  
+ + Hidrátate bien y aliméntate correctamente.  
+ + Mantén un registro de tus avances.
+
+---
+
+## Precauciones
+
+ + No levantes peso sin calentamiento previo.  
+ + Evita hacer repeticiones con mala postura.  
+ + No entrenes los mismos músculos todos los días.  
+ + Usa calzado adecuado y espacio seguro.  
+ + Consulta a un profesional si tienes problemas físicos.
+
+---
