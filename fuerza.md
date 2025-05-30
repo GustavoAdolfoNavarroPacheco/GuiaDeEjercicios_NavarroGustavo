@@ -12,3 +12,32 @@ El entrenamiento de fuerza se enfoca en aumentar la capacidad del cuerpo para le
  + Mejora la postura y equilibrio: Fortalece el core y estabilizadores.  
  + Previene lesiones: Refuerza ligamentos, tendones y articulaciones.  
  + Aumenta la confianza y disciplina: Progresar con peso mejora la autoestima.
+
+## Instrucciones
+
+ + Calentamiento general (5-10 min): trote, movilidad articular, activación muscular.  
+ + Estiramientos dinámicos para preparar el cuerpo (hombros, piernas, espalda).
+
+### Ejercicios principales (20-30 min)
+
++ Realiza 3-4 bloques con 4-6 ejercicios. Haz 3 series de 8-12 repeticiones con 30-60 seg de descanso:
+
+  + Sentadillas (con peso o cuerpo libre).  
+  + Flexiones (estándar o modificadas).  
+  + Peso muerto con barra, mochila o botellas.  
+  + Remo con banda, mancuerna o peso casero.  
+  + Press de hombros (manos, bandas o mancuernas).  
+  + Plancha activa para trabajar el core.  
+  + Zancadas o desplantes.
+
+### Ejercicios complementarios (10-15 min)
+
+ + Abdominales tipo crunch o elevación de piernas.  
+ + Fondos de tríceps (en silla o banco).  
+ + Curl de bíceps con bandas o botellas.
+
+### Enfriamiento y estiramiento (5-10 min)
+
+ + Caminata ligera.  
+ + Estiramiento estático (cuádriceps, espalda, brazos).  
+ + Respiraciones profundas para bajar la frecuencia cardíaca.
