@@ -40,3 +40,25 @@ La natación es un ejercicio completo que trabaja todo el cuerpo y mejora la con
  + Nado suave.  
  + Respiración profunda flotando o en el borde.  
  + Estiramiento fuera del agua (cuello, brazos, espalda, piernas).
+
+---
+
+## Consejos
+
+ + Usa gafas y gorro para mayor comodidad.  
+ + Mantén una respiración controlada.  
+ + Aprende bien la técnica de cada estilo antes de aumentar la intensidad.  
+ + Sé constante y registra tu progreso.  
+ + Hidrátate, incluso si estás en el agua.
+
+---
+
+## Precauciones
+
+ + No nades solo si eres principiante.  
+ + Evita nadar después de comer en exceso.  
+ + Respeta tu ritmo y no te sobreexijas.  
+ + Usa protección solar si nadas al aire libre.  
+ + Escucha a tu cuerpo y descansa si sientes fatiga.
+
+---
