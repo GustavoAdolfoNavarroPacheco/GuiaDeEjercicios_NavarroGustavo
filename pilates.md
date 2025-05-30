@@ -43,3 +43,25 @@ Pilates es un método de entrenamiento físico y mental que se enfoca en fortale
  + Estiramientos suaves en el suelo.  
  + Respiraciones profundas y conscientes.  
  + Relajación final acostadx (postura del cadáver).
+
+---
+
+## Consejos
+
+ + Concéntrate en la respiración y el control.  
+ + Realiza los movimientos lentamente y con precisión.  
+ + Usa una colchoneta cómoda y antideslizante.  
+ + Sé constante para ver resultados duraderos.  
+ + Ajusta los ejercicios a tu nivel físico.
+
+---
+
+## Precauciones
+
+ + No fuerces los estiramientos ni posiciones.  
+ + Si tienes lesiones, consulta a un profesional.  
+ + Evita arquear la espalda durante los ejercicios.  
+ + Mantén la zona lumbar protegida activando el abdomen.  
+ + No contengas la respiración durante el esfuerzo.
+
+---
