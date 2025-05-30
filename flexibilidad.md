@@ -42,3 +42,25 @@ El entrenamiento de flexibilidad se centra en mejorar la amplitud de movimiento 
  + Respiraciones profundas y conscientes.  
  + Estiramientos finales muy suaves.  
  + Música relajante o meditación guiada (opcional).
+
+---
+
+## Consejos
+
+ + Realiza los estiramientos lentamente y sin rebotes.  
+ + Escucha tu cuerpo, nunca fuerces una posición.  
+ + Mantén una respiración lenta y controlada.  
+ + Sé constante: estira al menos 3 veces por semana.  
+ + Usa ropa cómoda y una superficie acolchada.
+
+---
+
+## Precauciones
+
+ + Evita estirar músculos fríos con intensidad.  
+ + No mantengas posiciones dolorosas.  
+ + Consulta a un profesional si tienes lesiones previas.  
+ + No te exijas demasiado al principio, progresa gradualmente.  
+ + Hidrátate antes y después del entrenamiento.
+
+---
