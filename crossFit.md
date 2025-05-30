@@ -41,3 +41,25 @@ El CrossFit es un programa de entrenamiento de alta intensidad que combina ejerc
  + Caminata suave o trote muy lento.  
  + Estiramiento estático (cuádriceps, hombros, espalda).  
  + Respiraciones profundas para reducir pulsaciones.
+
+---
+
+## Consejos
+
+ + Aprende bien la técnica de cada movimiento.  
+ + Comienza con peso ligero o solo con el cuerpo.  
+ + Hidrátate bien antes, durante y después.  
+ + Escucha a tu entrenador si estás en un box.  
+ + No te compares con otros, progresa a tu ritmo.
+
+---
+
+## Precauciones
+
+ + No realices movimientos explosivos sin calentar.  
+ + Evita levantar mucho peso sin supervisión.  
+ + Usa calzado firme y antideslizante.  
+ + Si sientes dolor articular, detente y consulta.  
+ + Respeta los tiempos de descanso entre rutinas.
+
+---
